@@ -83,7 +83,7 @@ Send us a DM with:
 
 - 💬 Discord: **0x313131**
 - 📨 Telegram: [Chat on Telegram](https://t.me/tonny14)
-- 📧 Email: [Send an Email](mailto:timo.nieminen719@gmail.com)
+- 📧 Email: [Send an Email](tonny.5.4@outlook.com)
 
 ---
 
