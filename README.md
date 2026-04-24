@@ -83,7 +83,7 @@ Send us a DM with:
 
 - 💬 Discord: **luca_m54**
 - 📨 Telegram: [Luca](https://t.me/luca_m54)
-- 📧 Email: [Luca](lucas.moura.01@outlook.com)
+- 📧 Email: [lucas.moura.01@outlook.com](https://outlook.live.com/mail/0/)
 
 ---
 
