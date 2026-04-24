@@ -1,4 +1,4 @@
-# 🚀 Exciting Opportunity for Fluent English Technical Client Coordinator!
+# 🚀 Exciting Opportunity for **Fluent English Solid Technical Client Coordinator**!
 
 ## 🌍 About Us
 We’re a small, fully remote **Software Development Consulting** group building **Custom Digital Products** and business systems across **web, mobile, desktop, AI, automation, and data**. From idea to launch, we create software that improves operations, unlocks growth, and fits how your business actually works.  
