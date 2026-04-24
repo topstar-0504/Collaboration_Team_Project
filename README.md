@@ -1,7 +1,7 @@
-# 🚀 Exciting Opportunity for Fluent English Speakers!
+# 🚀 Exciting Opportunity for Fluent English Technical Client Coordinator!
 
 ## 🌍 About Us
-We’re a small, fully remote **Software Development Consulting** team building **Web, Mobile & Desktop applications**.  
+We’re a small, fully remote **Software Development Consulting** group building **Custom Digital Products** and business systems across **web, mobile, desktop, AI, automation, and data**. From idea to launch, we create software that improves operations, unlocks growth, and fits how your business actually works.  
 Our developers bring **7–10 years of experience**, and our roots are in **Europe & Asia**.
 
 ---
@@ -15,8 +15,8 @@ As we grow, we’ve structured our teams into small, efficient groups:
 This setup helps us deliver projects efficiently.  
 
 However:
-- Our **senior developers are overloaded**
-- Some **mid-level developers are still improving their English**
+- Our **Sr Devs are overloaded**
+- Some **Mid-lvl developers are still improving their skills**
 
 👉 That’s where *you* come in.
 
@@ -35,8 +35,8 @@ You’ll act as the **bridge between clients and the development team**.
 
 ## 👤 Who You Are
 - Fluent in **English (B2/C1 or higher)**  
-- Have **3–4 years of development experience**  
-- Comfortable speaking with clients  
+- Have **3–4 years of development experience**
+- Comfortable speaking with clients in interview
 
 ---
 
@@ -48,10 +48,10 @@ You’ll act as the **bridge between clients and the development team**.
 ---
 
 ## ✅ Requirements
-- English: **B2/C1+**
-- Available for **short daily calls**
-- Age: **22+**
-- Internet speed: **20 Mbps+**
+- English: **B2+/C1**
+- Available for **Short daily calls**
+- Age: **25+**
+- Stable Net Speed: **20 Mbps+**
 
 ---
 
@@ -72,18 +72,18 @@ You’ll act as the **bridge between clients and the development team**.
 
 ## 📩 Interested?
 Send us a DM with:
-
-- Your background  
-- English level  
-- Availability  
-- Age  
+- Primary language
+- Your background 
+- English level
+- Availability 
+- Age
 
 ---
 ## 📩 Get in Touch
 
-- 💬 Discord: **0x313131**
-- 📨 Telegram: [Chat on Telegram](https://t.me/tonny14)
-- 📧 Email: [Send an Email](tonny.5.4@outlook.com)
+- 💬 Discord: **luca_m54**
+- 📨 Telegram: [Chat on Telegram](https://t.me/luca_m54)
+- 📧 Email: [Send an Email](lucas.moura.01@outlook.com)
 
 ---
 
