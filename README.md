@@ -82,8 +82,8 @@ Send us a DM with:
 ## 📩 Get in Touch
 
 - 💬 Discord: **luca_m54**
-- 📨 Telegram: [Chat on Telegram](https://t.me/luca_m54)
-- 📧 Email: [Send an Email](lucas.moura.01@outlook.com)
+- 📨 Telegram: [Luca](https://t.me/luca_m54)
+- 📧 Email: [Luca](lucas.moura.01@outlook.com)
 
 ---
 
